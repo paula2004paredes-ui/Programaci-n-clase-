@@ -1,2 +1,4 @@
-# Programaci-n-clase-
-Estudiante de marketing Uide 
+# Paula Paredes 
+# Estudiante de marketing
+# 22 años 
+# Actualmente cursando 8 semestre 
